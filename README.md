@@ -2,9 +2,9 @@
 Dies ist die Lösung für: Pumvythapr zpjolya Gbrbuma – tloy kluu ql (gym ahz)
 
 
-.
-By Dodo - :)
-.
+
+By Dodo シ
+
 
 -------------------------------------------------
 
@@ -15,7 +15,7 @@ By Dodo - :)
 
 **Verschiebung**: 19
 
-**Liebe Grüße an Herrn Borrmann :)**
+**Liebe Grüße an Herrn Borrmann und Herrn Fischer シ**
 
 
 -------------------------------------------------
